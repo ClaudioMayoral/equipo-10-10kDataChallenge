@@ -1,1 +1,0 @@
-# equipo-10-10kDataChallenge
